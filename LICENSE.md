@@ -1,4 +1,4 @@
-# 
+# VIP ExpressVPN predefinições para Mac OS | Código aberto ExpressVPN predefinições para PC Windows. Com cofre criptografado e proteção contra ransomware — otimizado para máximo desempenho em cada plataforma.
 
 
 
